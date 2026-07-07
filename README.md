@@ -1,6 +1,6 @@
 # Maxim Belik — Writing Samples
 
-Freelance writer & content specialist. Remote, worldwide. English (written), Russian (native).
+Freelance writer & content specialist. Available worldwide.
 Contact: dekoyy1234@gmail.com
 
 Short samples across the formats I write. Happy to write a fresh test piece on any topic.
